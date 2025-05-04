@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **Impossiblegakpa360@gmail.com**
 
-- ⚡ Fun fact **I love to crack jokes**
+- ⚡ Fun fact **I love to explore everything tech**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
